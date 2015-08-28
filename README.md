@@ -55,4 +55,12 @@ HTML5 - http://i.giflike.com/JYN9dkU
 
 ---------
 
+![brb taking to the sky for a sec](http://i.giflike.com/nDCdagC.gif) (HTML5: http://i.giflike.com/nDCdagC)
+
+---------
+
+![thug life in the sky](http://i.giflike.com/tjmIzEE.gif) (HTML5: http://i.giflike.com/tjmIzEE)
+
+----------
+
 ![Accidentally beautiful](https://dl.dropboxusercontent.com/u/2273146/IllustriousWarpedGartersnake.gif)
