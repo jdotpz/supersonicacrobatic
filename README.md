@@ -57,6 +57,12 @@ HTML5 - http://gfycat.com/IllustriousWarpedGartersnake
 
 ----------
 
+![JP calls out for someone to tap it in...Holcomb responds with a much celebrated tap](http://i.giflike.com/gTRHx5Y.gif)
+
+HTML5 - http://i.giflike.com/gTRHx5Y
+
+----------
+
 
 ## Links you have to click
 
