@@ -1,4 +1,3 @@
-![Do the twist](http://giant.gfycat.com/IllustriousWarpedGartersnake.gif)
 
 ---------
 
@@ -73,6 +72,7 @@ Taaap it in :  HTML5 - http://i.giflike.com/x8ECC8K
 
 ---------
 
+Do the twist http://giant.gfycat.com/IllustriousWarpedGartersnake.gif
 
 
 
