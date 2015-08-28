@@ -4,16 +4,6 @@ HTML5 - http://i.giflike.com/d8Xn33U
 
 ---------
 
-![Touch it softly](https://dl.dropboxusercontent.com/u/2273146/thesofttouch.gif)
-
-HTML5 - http://i.giflike.com/j6mZfb3
-
----------
-
-![The soft touch](http://i.giflike.com/j6mZfb3.gif)
-
----------
-
 ![TO THE FUCKING SKY](http://i.giflike.com/U4Cocin.gif)
 
 HTML5 - http://i.giflike.com/U4Cocin
@@ -42,11 +32,6 @@ HTML5 - http://i.giflike.com/WtVWOf8
 
 HTML5 - http://i.giflike.com/pjgFt6g
 
----------
-
-![Taaap it in](http://i.giflike.com/x8ECC8K.gif)
-
-HTML5 - http://i.giflike.com/x8ECC8K
 
 ---------
 
@@ -62,5 +47,14 @@ HTML5 - http://i.giflike.com/JYN9dkU
 ![thug life in the sky](http://i.giflike.com/tjmIzEE.gif) (HTML5: http://i.giflike.com/tjmIzEE)
 
 ----------
+## Links you have to click
 
-![Accidentally beautiful](https://dl.dropboxusercontent.com/u/2273146/IllustriousWarpedGartersnake.gif)
+Accidentally beautiful: https://dl.dropboxusercontent.com/u/2273146/IllustriousWarpedGartersnake.gif
+
+----------
+
+Touch it softly - HTML5 - http://i.giflike.com/j6mZfb3
+
+---------
+
+Taaap it in :  HTML5 - http://i.giflike.com/x8ECC8K
