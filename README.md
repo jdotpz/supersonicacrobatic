@@ -4,7 +4,23 @@ HTML 5 - http://i.giflike.com/CaaQnYi
 
 --------
 
+![Teamwork up the side](http://i.giflike.com/Sbcg2fr.gif)
 
+HTML 5 - http://i.giflike.com/Sbcg2fr
+
+---------
+
+![Usually all it takes....](http://i.giflike.com/TApbafs.gif)
+
+HTML 5 - http://i.giflike.com/TApbafs
+
+---------
+
+![In case of heart attack, take a bunch of Bayer aspirin](http://i.giflike.com/Sr5MnJS.gif)
+
+HTML 5 - http://i.giflike.com/Sr5MnJS
+
+-----------
 
 
 ![prayer answered](http://i.giflike.com/XBkuVQK.gif)
